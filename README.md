@@ -1,4 +1,4 @@
-# iQy Exploit AutoDownload!
+# iQy Exploit Roblox AutoDownload!
 The Exploites:
 
 SynnA  Download Link: https://exploitsroblox1.github.io/iQy/exploits/SynnA.zip
